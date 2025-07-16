@@ -1,0 +1,1 @@
+Front-End web developer  in responsive web design and interactive user interfaces. Combining my background in industrial automation with modern web technologies to create unique solutions spanning different industries to accelerate economic digital transformation.
